@@ -1,1 +1,1 @@
-https://Evg2ChainzDev.github.io/rsschool-cv/cv
+https://Evg2ChainzDev.github.io/rsschool-cv/
